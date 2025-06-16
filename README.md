@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lainn03
-- 👀 I’m interested in girls
-- 🌱 I’m currently learning python
+- 👀 I’m interested in Video editing
+- 🌱 I’m currently learning after affects and many more.
 
 
 
